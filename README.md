@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning ... My server.
 - 💞️ I’m looking to collaborate on ... My server.
 - 📫 How to reach me : You dont, and if you do I wont respond.
-- ⚡ Fun fact: Little unfixable shit, pisses me off more than bigger unfixable things.
+- ⚡ Fun fact: Little unfixable shit, pisses me off more than bigger unfixable shit.
 
 
